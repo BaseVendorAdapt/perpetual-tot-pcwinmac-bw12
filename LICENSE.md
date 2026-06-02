@@ -1,4 +1,4 @@
-# 
+# Personalizado perpetual trading bot complementos para Mac OS | Top perpetual trading bot complementos para PC Windows. Com limitação de taxa e gerenciamento de chaves privadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
